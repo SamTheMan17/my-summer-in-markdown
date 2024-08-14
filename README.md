@@ -24,3 +24,6 @@ My favorite summer memory with my freinds would be going to all the beaches that
 
 **Fun Fact About Yourself|**
 One cool fact about me is that I speak another language. Both my parents are European, my dad was born in France and my mom was born in Belgium. When I was born my frist word was "papillon" which means Butterfly! I now can fluently speak French and English
+
+
+![alt text](image-2.png)
